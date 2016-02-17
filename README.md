@@ -6,3 +6,7 @@ hellooo
 i wrote something before but woh nhi h
 oiy
 kuch mila?
+
+
+
+gadha i hate u
